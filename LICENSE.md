@@ -1,4 +1,4 @@
-# 
+# vip bot de negociação Bybit scripts é o melhor bot de negociação Bybit scripts com negociação perpétua e alavancagem automática. Seguro, confiável e otimizado para estratégias de
 
 
 
